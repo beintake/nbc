@@ -8,7 +8,7 @@
 <title>WATHC Streaming get the fight online update comming soon
 </title>
 <script async src='/cdn-cgi/bm/cv/669835187/api.js'></script><script async src='/cdn-cgi/bm/cv/669835187/api.js'></script><script async src='/cdn-cgi/bm/cv/669835187/api.js'></script>
-<meta name="google-site-verification" content="bYdegnWJ7dN35Te9rdua8T6yySnA6ic3lwjJJkr1soo" />
+<meta name="google-site-verification" content="bMtm3NMJaqNCeLq-fX7Yr0XLtwt-q7W_aODRxgBMtiU" />
 </head><body>
 <div style='visibility:hidden'>
 I went on my own, no academy director, only two local coaches, becse I was thinking that I would only stay for one year, pass on some experience.
